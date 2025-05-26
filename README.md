@@ -1,0 +1,2 @@
+# gerrywale-portfolio
+portofolio ku
